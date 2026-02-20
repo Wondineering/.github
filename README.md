@@ -1,4 +1,4 @@
-# .Wondineer -> Wondivek
+# Wondineer -> Wondivek
 
 Here at Wondineer, district Wondivek the idea is to engineer and create absurd things you would normally think impossible. Wondineer is ran by NVDN and or on writing platforms and youtube Riapko. Although I have different names i'm still the same person lol, i just go by NVDN for technical things and Ria/riapko for story based things. 
 
